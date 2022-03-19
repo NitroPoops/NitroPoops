@@ -1,1 +1,1 @@
-harry the hamster
+harry the hamster and friends
