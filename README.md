@@ -1,1 +1,1 @@
-harry the hamster and billy and horse are
+harry the hamster and billy and horse are friends
