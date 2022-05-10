@@ -1,1 +1,1 @@
-harry the hamster and billy the horse are friends I think s.
+harry the hamster and billy the horse are friends I think. .
