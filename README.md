@@ -1,5 +1,4 @@
-harry the hamster
-billy the horse
+harry the hamster, ft. billy the horse
 
 <sup>click the image</sup>
 
