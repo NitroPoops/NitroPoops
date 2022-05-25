@@ -1,4 +1,4 @@
-harry the hamster, ft. billy the horse
+harry the hamster, featuring billy the horse
 
 <sup>click the image</sup>
 
