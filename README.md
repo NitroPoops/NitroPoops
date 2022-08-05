@@ -8,4 +8,4 @@ is there a tutorial for gorthub
 
 bruh this laptop is very broken
 
-pear extraordinaire
+pear extraordinaire is glitchy
