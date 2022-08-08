@@ -6,6 +6,6 @@ harry the hamster, featuring billy the horse.
 
 is there a tutorial for github
 
-bruh this laptop is very broken
+bruh this laptop is very broken.
 
 pear extraordinaire is glitchy.
