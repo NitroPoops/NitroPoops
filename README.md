@@ -8,4 +8,5 @@ is there a tutorial for github?
 
 bruh this laptop is very broken.
 
-o levels is eas
+o levels is easy
+
