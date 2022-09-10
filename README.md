@@ -8,4 +8,4 @@ is there a tutorial for github?
 
 bruh this laptop is very broken.
 
-o lev
+o leve
