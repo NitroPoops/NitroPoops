@@ -15,4 +15,4 @@ maybeeee??????????
 
 idkkkkkkkkkkkk
 
-bruh chinese is the ban
+bruh chinese is the bane
